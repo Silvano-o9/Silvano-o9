@@ -1,5 +1,5 @@
 # Welcome to Silvano's
-## This is place crazy coding
+## Thinking... 
 
 
 1. Working I thinking on the future :man_technologist:
